@@ -9,7 +9,7 @@
     <p align="center">ـــــــــــــــــﮩ٨ـ</p>
     
 <p align="center">
-<img src=[https://media1.tenor.com/m/6LZcK1vp-T0AAAAd/scout-tf2-scout.gif](https://i.pinimg.com/736x/d8/fe/14/d8fe14877beb2e11496326394db34970.jpg)>
+<img src=https://i.pinimg.com/736x/d8/fe/14/d8fe14877beb2e11496326394db34970.jpg>
 </p>
 
 <p align="center"> P.P.S. TF2 AND DEVIL MAY CRY FANS PLSPLSPLSPLSPLS INTERACT W ME I BEG</p>
