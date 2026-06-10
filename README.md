@@ -12,7 +12,7 @@
 <img src=https://media1.tenor.com/m/6LZcK1vp-T0AAAAd/scout-tf2-scout.gif>
 </p>
 
-<p align="center"> P.P.S. TF2 FANS PLSPLSPLSPLSPLS INTERACT W ME I BEG</p>
+<p align="center"> P.P.S. TF2 AND DEVIL MAY CRY FANS PLSPLSPLSPLSPLS INTERACT W ME I BEG</p>
 <p align="center">
 <sub>/ex</sub>
 </p>
