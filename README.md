@@ -1,6 +1,6 @@
 <html>
   <p align="center">˗ˏˋ ★"The Angel that presided 'oer my birth said, "Little creature, form'd of Joy and Mirth, "Go love without the help of any Thing on Earth.”"★ˎˊ˗ </p>
-<img src=https://i.pinimg.com/1200x/21/ba/11/21ba1138e225b2c811ce628572689abc.jpg> 
+<img src=https://i.pinimg.com/736x/ae/3a/4e/ae3a4e728082d6a3b6b7f61627e19818.jpg> 
 
 <p align="center">ـــــــــــــــــﮩ٨ـ</p>
 <p align="center"> Hello there! My name's Sean! I like drawing and coding, although i only have basic knowledge on html, css, js, and the like</p>
