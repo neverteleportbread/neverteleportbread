@@ -6,6 +6,9 @@
 <p align="center"> Hello there! My name's Sean! I like drawing and coding, although i only have basic knowledge on html, css, js, and the like</p>
     <p align="center"> Always C + H, etc. Anything is okay w me</p>
     <p align="center"> P.s. pls feel free int w me ingame, although i may seem a bit awkward at times, it is in no way in bad faith</p>
+
+    <p align="center"> ˗ˏˋ ꒰ ""I have no name; I am but two days old..." Just kidding. You can call me "V."" ꒱ ˎˊ˗ </p>
+    
     <p align="center">ـــــــــــــــــﮩ٨ـ</p>
     
 <p align="center">
