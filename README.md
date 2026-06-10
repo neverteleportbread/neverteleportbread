@@ -1,5 +1,5 @@
 <html>
-  <p align="center">˗ˏˋ ★" Velcome to the 've lose vonce again'-fest. (˶>⩊<˶) "★ˎˊ˗ </p>
+  <p align="center">˗ˏˋ ★"The Angel that presided 'oer my birth said, "Little creature, form'd of Joy and Mirth, "Go love without the help of any Thing on Earth.”"★ˎˊ˗ </p>
 <img src=https://i.pinimg.com/1200x/21/ba/11/21ba1138e225b2c811ce628572689abc.jpg> 
 
 <p align="center">ـــــــــــــــــﮩ٨ـ</p>
@@ -9,7 +9,7 @@
     <p align="center">ـــــــــــــــــﮩ٨ـ</p>
     
 <p align="center">
-<img src=https://media1.tenor.com/m/6LZcK1vp-T0AAAAd/scout-tf2-scout.gif>
+<img src=[https://media1.tenor.com/m/6LZcK1vp-T0AAAAd/scout-tf2-scout.gif](https://i.pinimg.com/736x/d8/fe/14/d8fe14877beb2e11496326394db34970.jpg)>
 </p>
 
 <p align="center"> P.P.S. TF2 AND DEVIL MAY CRY FANS PLSPLSPLSPLSPLS INTERACT W ME I BEG</p>
