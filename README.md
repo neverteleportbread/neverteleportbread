@@ -1,7 +1,8 @@
 
   <p align="center">˗ˏˋ ★"The Angel that presided 'oer my birth said, "Little creature, form'd of Joy and Mirth, "Go love without the help of any Thing on Earth.”"★ˎˊ˗ </p>
-<img width="500" height="90" alt="IMG_7546" src="https://github.com/user-attachments/assets/8919592b-138e-4119-be28-37d00355ea2b" />
-<html>
+<p align="center">
+  <img src="https://github.com/user-attachments/assets/8919592b-138e-4119-be28-37d00355ea2b">
+</p>
 
 <p align="center">ـــــــــــــــــﮩ٨ـ</p>
 <p align="center"> Hello there! My name's Sean! I like drawing and coding, although i only have basic knowledge on html, css, js, and the like</p>
