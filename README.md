@@ -1,9 +1,12 @@
 <p align="center">
-<img width="3072" height="2304" alt="image" src="https://github.com/user-attachments/assets/d913962f-6354-4272-b39c-dc14dcb2dc3e" />
+<img width="3072" height="2304" alt="image" src="https://github.com/user-attachments/assets/2ee268f8-7fd6-4590-8c5b-580297824156" />
 </p>
   <p align="center">˗ˏˋ ★"The Angel that presided 'oer my birth said, "Little creature, form'd of Joy and Mirth, "Go love without the help of any Thing on Earth.”"★ˎˊ˗ </p>
 <p align="center">
-<img width="2304" height="3072" alt="image" src="https://github.com/user-attachments/assets/13f3c732-21ea-495a-aae9-0d1d6cc6677c" />
+
+<p align="center">
+<img width="2013" height="2457" alt="image" src="https://github.com/user-attachments/assets/135287da-65c1-43ad-a1da-b9619901e81d" />
+
 </p>
   
 <p align="center"> Hello there! My name's Sean!</p>
@@ -14,9 +17,9 @@
 <p align="center">
  ˗ˏˋ ꒰ ""I have no name; I am but two days old..." Just kidding. You can call me "V."" ꒱ ˎˊ˗ 
 </p>
-    
+
 <p align="center">
-<img src=https://i.pinimg.com/736x/ae/3a/4e/ae3a4e728082d6a3b6b7f61627e19818.jpg> 
+<img width="3840" height="1561" alt="image" src="https://github.com/user-attachments/assets/ab19062d-416e-459f-abe9-829cc6ab95fa" />
 </p>
 
 <p align="center"> P.P.S. TF2 AND DEVIL MAY CRY FANS PLSPLSPLSPLSPLS INTERACT W ME I BEG</p>
@@ -24,11 +27,14 @@
 <sub>/ex</sub>
 </p>
     <p align="center"> 
-<img src="https://i.pinimg.com/1200x/be/26/a2/be26a2d428aeb88b47d46a8678b82b43.jpg" >
-
+<img width="3072" height="2304" alt="image" src="https://github.com/user-attachments/assets/19c143ce-ee8b-46c1-a8c4-d3ee6ccdd910" />
 </p>
 
 <p align="center"> 
 Just another obligatory image of V :3
+</p>
+
+<p align="center">
+  Also, the images are quite big, so sorry about that lol
 </p>
 </html>
