@@ -1,15 +1,15 @@
-
+<p align="center">
+<img width="3072" height="2304" alt="image" src="https://github.com/user-attachments/assets/d913962f-6354-4272-b39c-dc14dcb2dc3e" />
+</p>
   <p align="center">˗ˏˋ ★"The Angel that presided 'oer my birth said, "Little creature, form'd of Joy and Mirth, "Go love without the help of any Thing on Earth.”"★ˎˊ˗ </p>
 <p align="center">
-  <img src="https://github.com/user-attachments/assets/8919592b-138e-4119-be28-37d00355ea2b">
+<img width="2304" height="3072" alt="image" src="https://github.com/user-attachments/assets/13f3c732-21ea-495a-aae9-0d1d6cc6677c" />
 </p>
-
-<p align="center">ـــــــــــــــــﮩ٨ـ</p>
+  
 <p align="center"> Hello there! My name's Sean!</p>
     <p align="center"> Always C + H, etc. Anything is okay w me, though, please Whisper 2 Interact as i am usually offtab</p>
     <p align="center"> P.s. pls feel free int w me ingame, although i may seem a bit awkward at times, it is in no way in bad faith</p>
 
-<p align="center"> ـــــــــــــــــﮩ٨ـ </p>
 
 <p align="center">
  ˗ˏˋ ꒰ ""I have no name; I am but two days old..." Just kidding. You can call me "V."" ꒱ ˎˊ˗ 
