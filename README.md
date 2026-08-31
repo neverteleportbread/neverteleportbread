@@ -13,7 +13,6 @@
     <p align="center"> Always C + H, etc. Anything is okay w me, though, please Whisper 2 Interact as i am usually offtab</p>
     <p align="center"> P.s. pls feel free int w me ingame, although i may seem a bit awkward at times, it is in no way in bad faith</p>
 
-
 <p align="center">
  ˗ˏˋ ꒰ ""I have no name; I am but two days old..." Just kidding. You can call me "V."" ꒱ ˎˊ˗ 
 </p>
@@ -25,6 +24,9 @@
 <p align="center"> P.P.S. TF2 AND DEVIL MAY CRY FANS PLSPLSPLSPLSPLS INTERACT W ME I BEG</p>
 <p align="center">
 <sub>/ex</sub>
+  <p align="center">Hey, while you're here</p>
+<p align="center">Do you wanna play a game?</p>
+<p align="center">If so, click here! welcome2thegame.straw.page</p>
 </p>
     <p align="center"> 
 <img width="3072" height="2304" alt="image" src="https://github.com/user-attachments/assets/19c143ce-ee8b-46c1-a8c4-d3ee6ccdd910" />
