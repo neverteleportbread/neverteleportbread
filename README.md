@@ -26,7 +26,7 @@
 <sub>/ex</sub>
   <p align="center">Hey, while you're here</p>
 <p align="center">Do you wanna play a game?</p>
-<p align="center">If so, click here! welcome2thegame.straw.page</p>
+<p align="center">If so, click here! https://welcome2thegame.straw.page/</p>
 </p>
     <p align="center"> 
 <img width="3072" height="2304" alt="image" src="https://github.com/user-attachments/assets/19c143ce-ee8b-46c1-a8c4-d3ee6ccdd910" />
@@ -34,9 +34,5 @@
 
 <p align="center"> 
 Just another obligatory image of V :3
-</p>
-
-<p align="center">
-  Also, the images are quite big, so sorry about that lol
 </p>
 </html>
