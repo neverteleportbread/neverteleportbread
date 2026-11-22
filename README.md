@@ -21,7 +21,7 @@
 <img width="3840" height="2351" alt="image" src="https://file.garden/Z899IuT3bGJvAxzz/Untitled1322_20261122163527.png" />
 </p>
 
-<p align="center"> P.P.S. TF2 AND DEVIL MAY CRY FANS PLSPLSPLSPLSPLS INTERACT W ME I BEG</p>
+<p align="center"> P.P.S. DEADLOCK FANS PLSPLSPLSPLSPLS INTERACT W ME I BEG</p>
 <p align="center">
 <sub>/ex</sub>
   <p align="center">Hey, while you're here</p>
@@ -30,9 +30,5 @@
 </p>
     <p align="center"> 
 <img width="3072" height="2304" alt="image" src="https://file.garden/Z899IuT3bGJvAxzz/Untitled1321_20261122163207.png" />
-</p>
-
-<p align="center"> 
-Just another obligatory image of V :3
 </p>
 </html>
