@@ -18,7 +18,7 @@
 </p>
 
 <p align="center">
-<img width="3840" height="2461" alt="image" src="https://file.garden/Z899IuT3bGJvAxzz/Untitled1322_20261122163527.png" />
+<img width="3840" height="2361" alt="image" src="https://file.garden/Z899IuT3bGJvAxzz/Untitled1322_20261122163527.png" />
 </p>
 
 <p align="center"> P.P.S. TF2 AND DEVIL MAY CRY FANS PLSPLSPLSPLSPLS INTERACT W ME I BEG</p>
