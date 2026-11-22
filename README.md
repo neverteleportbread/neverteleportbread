@@ -1,11 +1,11 @@
 <p align="center">
-<img width="3072" height="2304" alt="image" src="https://github.com/user-attachments/assets/2ee268f8-7fd6-4590-8c5b-580297824156" />
+<img width="3072" height="2304" alt="image" src="https://file.garden/Z899IuT3bGJvAxzz/Untitled1321_20261122163151.png" />
 </p>
-  <p align="center">˗ˏˋ ★"The Angel that presided 'oer my birth said, "Little creature, form'd of Joy and Mirth, "Go love without the help of any Thing on Earth.”"★ˎˊ˗ </p>
+  <p align="center">˗ˏˋ ★"I think the worst part is that... my father would be more proud of me if I was trying to kill him rather than trying to stop him."★ˎˊ˗ </p>
 <p align="center">
 
 <p align="center">
-<img width="2013" height="2457" alt="image" src="https://github.com/user-attachments/assets/135287da-65c1-43ad-a1da-b9619901e81d" />
+<img width="2013" height="2457" alt="image" src="https://file.garden/Z899IuT3bGJvAxzz/Untitled1323_20261122163727.png" />
 
 </p>
   
@@ -18,7 +18,7 @@
 </p>
 
 <p align="center">
-<img width="3840" height="1561" alt="image" src="https://github.com/user-attachments/assets/ab19062d-416e-459f-abe9-829cc6ab95fa" />
+<img width="3840" height="1561" alt="image" src="https://file.garden/Z899IuT3bGJvAxzz/Untitled1322_20261122163527.png" />
 </p>
 
 <p align="center"> P.P.S. TF2 AND DEVIL MAY CRY FANS PLSPLSPLSPLSPLS INTERACT W ME I BEG</p>
@@ -29,7 +29,7 @@
 <p align="center">If so, click here! https://welcome2thegame.straw.page/</p>
 </p>
     <p align="center"> 
-<img width="3072" height="2304" alt="image" src="https://github.com/user-attachments/assets/19c143ce-ee8b-46c1-a8c4-d3ee6ccdd910" />
+<img width="3072" height="2304" alt="image" src="https://file.garden/Z899IuT3bGJvAxzz/Untitled1321_20261122163207.png" />
 </p>
 
 <p align="center"> 
