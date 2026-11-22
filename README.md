@@ -14,11 +14,11 @@
     <p align="center"> P.s. pls feel free int w me ingame, although i may seem a bit awkward at times, it is in no way in bad faith</p>
 
 <p align="center">
- ˗ˏˋ ꒰ ""I have no name; I am but two days old..." Just kidding. You can call me "V."" ꒱ ˎˊ˗ 
+ ˗ˏˋ ꒰ "I'll use my family's name when I'm no longer ashamed of it." ꒱ ˎˊ˗ 
 </p>
 
 <p align="center">
-<img width="3840" height="2361" alt="image" src="https://file.garden/Z899IuT3bGJvAxzz/Untitled1322_20261122163527.png" />
+<img width="3840" height="2351" alt="image" src="https://file.garden/Z899IuT3bGJvAxzz/Untitled1322_20261122163527.png" />
 </p>
 
 <p align="center"> P.P.S. TF2 AND DEVIL MAY CRY FANS PLSPLSPLSPLSPLS INTERACT W ME I BEG</p>
